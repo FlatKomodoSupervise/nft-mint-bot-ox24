@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with high-frequency nft mint bot | auto-buy + private-RPC-nodes, the #1 nft mint bot. Includes auto-buy and private-RPC-nodes for a faster and more
 
 
 
